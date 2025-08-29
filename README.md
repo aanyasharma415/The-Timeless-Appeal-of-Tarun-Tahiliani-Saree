@@ -1,7 +1,11 @@
 # The-Timeless-Appeal-of-Tarun-Tahiliani-Saree
+<img width="1200" height="1800" alt="image" src="https://github.com/user-attachments/assets/b29ecc8f-86ab-4627-91c9-a8663be2b671" />
+
 When it comes to redefining traditional Indian attire with a modern touch, nothing speaks louder than a **[Tarun Tahiliani saree](https://taruntahiliani.com/collections/designer-sarees-for-women)**. Known as the ‘Couturier to the Modern Indian Woman,’ Tarun has revolutionized the way we perceive the saree. His designs go beyond the six yards of fabric—they represent artistry, innovation, and storytelling. Each saree is an interplay of tradition and modernity, perfect for women who appreciate heritage but also want to embrace contemporary aesthetics. Whether it is a wedding, cocktail evening, or a red-carpet event, a Tarun Tahiliani saree ensures you stand out with grace and sophistication.
 
 **The evolution of the saree through Tarun Tahiliani**
+<img width="1200" height="1800" alt="image" src="https://github.com/user-attachments/assets/c6764d8e-c4b8-44aa-867d-4ea8edcfee5b" />
+
 The saree has been a symbol of Indian culture for centuries. What Tarun Tahiliani has done is transform this heritage attire into something global without losing its essence. His designs often include pre-draped sarees, concept sarees, and fluid drapes that make wearing them easier for modern women. By introducing innovative draping styles and lightweight fabrics, he has made the saree more accessible, especially for younger generations who want to wear it without the complexity of traditional pleating and tucking.
 
 **Craftsmanship and signature detailing**
